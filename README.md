@@ -1,0 +1,1 @@
+# becona-padrao-2.0
